@@ -1,0 +1,3 @@
+'''bcmcfxcfxgxngfmxmgfxhmcmgxhhxfcmfdcmfdmhxnx
+mgmhgxmhcxhmcgvcjmvjccgh
+jgchfchgchmcghchmcvvfmhfjxrxrhchtrxhgdbg'''
